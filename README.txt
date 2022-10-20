@@ -1,1 +1,1 @@
-#this mod is be real 
+# this mod is real and is on curseforge :)
